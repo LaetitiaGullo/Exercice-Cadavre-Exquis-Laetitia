@@ -11,3 +11,8 @@ Je ne le laissai pas terminer et le lachai au sol en hurlant.
 <br/>
 Une fois au sol, l'animal se retourna vers moi et me demanda "Mais pourquoi tu as fait ça ?"
 <br/>
+Je lui réponds : Mais tu parles ! 
+<br/>
+"<i>Suis-je folle ?<i>" est la première phrase qui me vient en tête.
+<br/>
+Le poisson répond : Oui tu es folle, depuis quand les poissons savent-ils parler et lire dans les pensées ?
