@@ -13,6 +13,6 @@ Une fois au sol, l'animal se retourna vers moi et me demanda "Mais pourquoi tu a
 <br/>
 Je lui réponds : Mais tu parles ! 
 <br/>
-"<i>Suis-je folle ?<i>" est la première phrase qui me vient en tête.
+"<i>Suis-je folle ?</i>" est la première phrase qui me vient en tête.
 <br/>
 Le poisson répond : Oui tu es folle, depuis quand les poissons savent-ils parler et lire dans les pensées ?
