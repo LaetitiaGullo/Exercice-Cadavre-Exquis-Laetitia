@@ -11,3 +11,9 @@ Je ne le laissai pas terminer et le lachai au sol en hurlant.
 <br/>
 Une fois au sol, l'animal se retourna vers moi et me demanda "Mais pourquoi tu as fait ça ?"
 <br/>
+Je lui dit : "Si tu es vraiment omniscient, tu devrais le svoir non ?
+<br/>
+Il me regarda avec des yeux de digne d'un poisson mort...
+<br/>
+Après plusieurs secondes de blanc, il me dit :
+<br/>
